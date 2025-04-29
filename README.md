@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kofiJnr1
-- 👀 I’m interested in Ghana 
+- 👀 I’m interested in Hacking
 - 🌱 I’m currently learning IT
 - 💞️ I’m looking to collaborate on any platform 
 - 📫 How to reach me WhatsApp 
